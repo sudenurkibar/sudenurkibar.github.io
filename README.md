@@ -1,1 +1,0 @@
-# sudenurkibar.github.io
